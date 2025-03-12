@@ -1,1 +1,1 @@
-fine-tuning gemma on the go!
+fine-tuning gemma hassle-free & on the go!
