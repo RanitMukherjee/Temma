@@ -1,1 +1,1 @@
-fine-tuning gemma hassle-free & on the go!
+change of plans!
